@@ -1,4 +1,4 @@
-# // Lord Kazuto
+// Lord Kazuto
 Age - [Unknown]
 Ethnicity - [Asian]
   **"Some people are meant to let go, no matter how much you loved them."**
